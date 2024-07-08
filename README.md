@@ -12,7 +12,7 @@
 
 <p align="center">
 <a href="https://github.com/Mahiya25">
-    <img src="https://telegra.ph/file/8af1f481edb3153efe9f6.jpg"  width="700px">
+    <img src="https://telegra.ph/file/cc33e11faa8e9c653dcab.jpg"  width="700px">
 </a>
 <hr>
 
@@ -21,7 +21,7 @@
 
 ## JOIN MY WHATSAPP CHANNEL
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://whatsapp.com/channel/0029VahMZasD8SE5GRwzqn3Z)
+[![Mihiruk](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://chat.whatsapp.com/KnkAjmtcTseEzXobrzpPYR)
 
 
 
